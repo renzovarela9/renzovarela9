@@ -1,4 +1,4 @@
-### Hello
+### Hello, I'm Renzo 
 - 🔭 I am currently working as a painter
 - 🌱 I'm currently learning to program
 - 👯 I seek to collaborate in what I can
