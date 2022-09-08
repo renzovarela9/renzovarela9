@@ -15,3 +15,4 @@
 
 ⚡ Dato curioso: quiero ser la mejor version de mi cada día
 
+🎉Futuro programador y Licenciado en Infromatica
