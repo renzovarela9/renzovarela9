@@ -7,11 +7,11 @@
 
 🤔 Buscando ayuda con la interferencia de canales de frecuencia
 
-💬 Pregúntame ¿cómo terminé aquí?
+💬 Pregúntame sobre sonido... Soy muy buen Dj
 
 📫 Ponerse en contacto conmigo: renzovarela0@gmail.com
 
 😄 Pronombres: Facha
 
-⚡ Dato curioso: me gusta comer pastel de papa
+⚡ Dato curioso: quiero ser la mejor version de mi cada día
 
