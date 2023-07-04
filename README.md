@@ -5,13 +5,11 @@
 
 🌱 Actualmente estoy aprendiendo a programar
 
-🔭 Actualmente trabajo como pintor
+🔭 Actualmente trabajo como piletero
 
 🤔 Buscando ayuda con la interferencia de canales de frecuencia
 
 💬 Pregúntame sobre sonido... Soy muy buen Dj
-
-😄 Pronombres: Facha
 
 ⚡ Dato curioso: quiero ser la mejor version de mi cada día
 
