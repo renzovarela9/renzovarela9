@@ -20,5 +20,5 @@
 
 ![renzovarela9 GitHub stats](https://github-readme-stats.vercel.app/api?username=renzovarela9&theme=radical&show_icons=true)
 
-<p><img align="center" src="https://indify.co/widgets/live/progressBar/0D2btSqd1sH09bWZtIZQ)?username=renzovarela9&show_icons=true&locale=en&layout=compact" alt="renzovarela9" /></p>
+![renzovarela9 GitHub stats](https://indify.co/widgets/live/progressBar/0D2btSqd1sH09bWZtIZQ/api?username=renzovarela9&theme=radical&show_icons=true)
 
